@@ -8,3 +8,4 @@
 ![avatar4](https://github.com/TarunSaini063/static_assets_new/assets/42493105/085d8e31-9aad-4a98-81c8-865fa9c7d50f)
 ![avatar6](https://github.com/TarunSaini063/static_assets_new/assets/42493105/a8df2420-c99b-472b-b71a-5eb6f868cb5e)
 ![3d_avatar_6](https://github.com/TarunSaini063/static_assets_new/assets/42493105/f6ecb4c9-8782-48c5-88a9-17866f0bd885)
+![3d_avatar_6](https://github.com/TarunSaini063/static_assets_new/assets/42493105/cd5b7341-dc44-47b7-a978-fd4b9a956b02)
